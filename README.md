@@ -1,3 +1,3 @@
 # Designing-a-comprehensive-Cyber-Security-Program-
 
-I will decide on this later.
+I will decide whether or not to publish it later.
